@@ -1,0 +1,1 @@
+# NOV-2022-Salesforce-Marketing-Cloud-Administrator-Dumps-Questions-For-Quick-Learning
